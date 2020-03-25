@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome JCrisanto's blog
 
-I'm glad you are here. I plan to talk about ...
+I'm going to talk about the advantages of working with Hero Unit/Acklen Avenue
